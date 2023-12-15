@@ -8,7 +8,7 @@ i’m autistic precarious white disabled transfem agender demisexual & bi
 cripple punk  
 compulsive nerd
 
-in here, i work mostly on my [YunoHost](https://yunohost.org/) package of [GoToSocial](https://github.com/YunoHost-Apps/gotosocial_ynh)  
+in here, i work mostly on my [YunoHost](https://yunohost.org/) [package](https://github.com/YunoHost-Apps/gotosocial_ynh) of [GoToSocial](https://gotosocial.org/)  
 i also do 3D modeling to enhance my life or repair things, you can find my work [on Printables](https://www.printables.com/fr/@OniriCorpe)
 
 in case you wanna support my work, you can [tip me on my ko-fi page](https://ko-fi.com/oniricorpe)
