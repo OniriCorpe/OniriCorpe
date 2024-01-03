@@ -5,7 +5,7 @@ please use one of my names as pronoun (and feminine accords if your language req
 28 yo glitched thing ⛬ EN/FR speaker (lerne langsam Deutsch)
 
 i’m autistic precarious white disabled transfem agender demisexual & bi  
-cripple punk  
+cripple punk ♿️  
 compulsive nerd
 
 in here, i work mostly on my [YunoHost](https://yunohost.org/) [package](https://github.com/YunoHost-Apps/gotosocial_ynh) of [GoToSocial](https://gotosocial.org/)  
