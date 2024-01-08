@@ -11,7 +11,8 @@ compulsive nerd
 in here, i work mostly on my [YunoHost](https://yunohost.org/) [package](https://github.com/YunoHost-Apps/gotosocial_ynh) of [GoToSocial](https://gotosocial.org/)  
 i also do 3D modeling to enhance my life or repair things, you can find my work [on Printables](https://www.printables.com/fr/@OniriCorpe)
 
-in case you wanna support my work, you can [tip me on my ko-fi page](https://ko-fi.com/oniricorpe)
+in case you wanna support my work, you can [tip me on my ko-fi page](https://ko-fi.com/oniricorpe)  
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/R6R61POIX)
 
 you can reach me on the fediverse, on [my english speaking account](https://woof.tech/@CyberSaloperie) or [my french speaking account](https://octodon.social/@OniriCorpe)  
 please send me a DM to introduce yourself if you want to follow me, i'm socially anxious so i need it to reassure me
