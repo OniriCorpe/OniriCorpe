@@ -2,7 +2,7 @@ hi!
 i'm Émy or Xana (pronounced Shana)  
 please use one of my names as pronoun (and feminine accords if your language requires it)
 
-28 yo glitched thing ⛬ EN/FR speaker (lerne langsam Deutsch)
+~30 yo glitched thing ⛬ EN/FR speaker (lerne langsam Deutsch)
 
 i’m autistic precarious white disabled transfem agender demisexual & bi  
 cripple punk ♿️  
